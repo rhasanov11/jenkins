@@ -1,0 +1,1 @@
+Salam bu menim yeni versiyali index.html dir
